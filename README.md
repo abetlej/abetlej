@@ -10,5 +10,4 @@ My name is Alicja Betlej (but most people call me Ala)
 - 🤖 [Robogals](https://robogals.org/) Loughborough President (playing with Lego Mindstorms in my free time)
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/alicja-betlej/)
 - 😄 Pronouns: she/her
-- 🇵🇱
 - :uk: My name can be translated as Alice or Alicia
